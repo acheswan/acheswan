@@ -11,5 +11,5 @@ pink faggot and yellow faggot
 
 ![Screenshot 2024-02-22 211940](https://github.com/acheswan/acheswan/assets/151301781/1a16038c-2405-4740-83fc-87174ed37fc6)
 
-PLEASE. CANCNEL THEM. theyhave a callout rentry https://rentry.co/cock
-@starsour @tsvkasa @5th-child @steIIe
+PLEASE. CANCNEL THEM. theyhave a callout rentry
+@starsour @tsvkasa @5th-child @steIIe @saquamarine
